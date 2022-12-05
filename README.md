@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Icarus-The-Sun
+- 👀 We do be code-diving for spessmen.
+- 🌱 I know nothing, and I will continue to know nothing. Anything I do is made from pure chaos.
+- 📫 Ping Icarus on the discord. You know which one.
